@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PampersTT
-- 👀 I’m interested in coding not hard project
+- 👀 I’m interested in coding not hard project(not sites)
 - 🌱 I’m currently learning anything about python
 - 📫 How to reach me? my name in telegram : @Pampers228666 ; my TikTok-@loshara_killer228
 
